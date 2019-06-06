@@ -39,6 +39,9 @@ The most powerful ability in the series,
 </details>
 He loses this ability by Season 3.
 
+##### Multilingualism
+Jo speaks West Astonian as his first language, but also speaks East Astonian/Georgian, Elvish, Rosquilite, Halfling, and Frestatashi.
+
 ## Story
 
 ##### Season 1
