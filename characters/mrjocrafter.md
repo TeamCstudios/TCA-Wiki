@@ -59,7 +59,7 @@ However, in the Last Story, Team Hero and Team Dark put aside their differences 
 ##### Season 3
 Jo is attending buisness in Georgetown when he finds out that the Georgyske Ûnôfhinklike Partij killed the previous king, his uncle, and rallies the heroes of the realm to face the threat.
 
-#### Exploration
+##### Exploration
 After defeating the GÛP, Jo is told by JTheGoldenHeart that Lance has shipwrecked himself on an as-of-yet undiscovered island east of East Astonia.
 
 Jo then goes with Ashton, followed closely by Zach, then Chew and DjSlime, then Bob and Jared, followed by Riley, Mean, and Bronco.
